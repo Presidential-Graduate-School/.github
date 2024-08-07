@@ -1,10 +1,10 @@
 # Welcome to Presidential Graduate School 👋
 
 ### ABOUT PRESIDENTIAL GRADUATE SCHOOL
-Situated in New Banesh or, Kathmandu, the Presidential Graduate School was founded in 2011, with the mission to establish itself as a benchmark for quality education in Nepal.
+Situated in New Baneshwor, Kathmandu, the Presidential Graduate School was founded in 2011, with the mission to establish itself as a benchmark for quality education in Nepal.
 
 #### Accreditation and Affiliation
-Presidential Graduate School proudly affiliates with Westcliff University, USA ([www.westcliff.edu] (http://www.westcliff.edu/)). Westcliff University is accredited by the WASC Senior College and University Commission (WSCUC), 1080 Marina Village Parkway, Suite 500, Alameda, CA 94501 510.748.9797, an institutional accrediting body recognized by the U.S. Department of Education (ED), and the Council on Higher Education Accreditation (CHEA), a private nonprofit national organization that serves its members, students, and society through advocacy for the value and independence of accreditation, recognition of accrediting organizations, and commitment to quality in higher education.
+Presidential Graduate School proudly affiliates with Westcliff University, USA ([www.westcliff.edu](http://www.westcliff.edu/)). Westcliff University is accredited by the WASC Senior College and University Commission (WSCUC), 1080 Marina Village Parkway, Suite 500, Alameda, CA 94501 510.748.9797, an institutional accrediting body recognized by the U.S. Department of Education (ED), and the Council on Higher Education Accreditation (CHEA), a private nonprofit national organization that serves its members, students, and society through advocacy for the value and independence of accreditation, recognition of accrediting organizations, and commitment to quality in higher education.
 
 Westcliff University College of Business programs are globally accredited by the Accreditation Council for Business Schools and Programs (ACBSP), a standard of excellence with an accreditation process based on the Baldrige Education Criteria for Performance Excellence. The accreditation focuses on recognizing teaching excellence, determining student learning outcomes, and a continuous improvement model. Institutions with programs accredited by ACBSP are committed to continuous improvement that ensures their business program will give students the skills employers want.
 
